@@ -10,3 +10,6 @@
 - おでん にいの(https://www.instagram.com/oden.niino/?hl=ja)
 ![Alt text](3D573B91-C587-4DA0-AC2C-DE9962FE6B1F.jpeg)
 
+- w/たれちゃん
+- おそ松(https://www.instagram.com/osomatsufukuoka/)
+![Alt text](C5C7904E-7B85-4F84-8F92-499158CF76FF.jpeg)
